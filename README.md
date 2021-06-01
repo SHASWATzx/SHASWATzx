@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SHASWATzx
 
 - 👀 I’m interested in Websites and all the outrageous 
-     and astromishing deings.
+     and astromishing designs.
 - 🌱 I’m currently doing a course on website developmwnt 
      and I am CS student. 
 - 💞️ I’m looking to collaborate on Front end projects  
