@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in Websites and all the outrageous 
      and astromishing designs.
-- 🌱 I’m currently doing a course on website developmwnt 
+- 🌱 I’m currently doing a course on website developmentnt, learning ux ui
      and I am CS student. 
 - 💞️ I’m looking to collaborate on Front end projects  
      and anything that requires imerse creativity. 
